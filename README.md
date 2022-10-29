@@ -1,6 +1,6 @@
 
 
-<h1><strong>Moritz Walter - Source Frontiers</strong></h1>
+<h1><strong>Moritz Bernhard Walter</strong></h1>
 
 <h3><strong>Some Informations About Me:</strong></h3>
 
